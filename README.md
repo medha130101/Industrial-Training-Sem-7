@@ -1,1 +1,1 @@
-# Industrial_Training_Sem_7
+# Industrial-Training-Sem-7
